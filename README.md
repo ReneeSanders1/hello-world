@@ -1,5 +1,5 @@
 # hello-world
 Training repository
 
-Training - Renee
-Desert aficiando, dedicated feline enthusiast, wildlife conservationist, 
+Training - Renee.
+Desert aficinado, dedicated feline enthusiast, wildlife conservationist, lover of olives.
